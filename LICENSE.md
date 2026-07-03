@@ -1,4 +1,4 @@
-# 
+# Automatique Quicken extensions pour Mac OS | Sécurisé Quicken extensions pour PC Windows. Avec facturation récurrente et planification des rapports — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
